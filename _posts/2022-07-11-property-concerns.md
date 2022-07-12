@@ -1,9 +1,9 @@
 ---
 title: Surprising Ways Texas Distributes Property
-date: June 9, 2022
+date: July 11, 2022
 description: Why Do I Need a Will if Everything Automatically Goes to My Spouse and Children? Well, what if it doesn't?
 ---
-Why Do I Need a Will if Everything Automatically Goes to My Spouse and Children?
+Why do I need a will if everything automatically goes to my spouse and children?
 
 Does it, though?
 
